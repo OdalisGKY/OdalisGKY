@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OdalisGKY
-- 👀 I’m interested in Software Development
+- 👀 Keep Faith and Keep Pushing
 - 🌱 I love to break things
 - 💞️ I’m looking to collaborate on everything TECH
 <!---
